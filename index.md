@@ -7,6 +7,7 @@ Khi bạn tới đây, chứng tỏ bạn là trap boiz, girls :)))
 ### Ghi chú:
 
 -Page này lập ra để cho vui chứ không có ý xúc phạm, đả kích, ... bất kì ai và bất kì tổ chức nào ha.
+
 -...
 
 Có gì ghi sau chứ lười quá
