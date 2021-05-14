@@ -8,7 +8,7 @@ Thằng chó Taannnnnnnn. Đm màyyyyyyy
 
 -Page này lập ra để cho vui thôi
 
--...
+-Page này lập ra để biện minh rằng Tân không GAYYYYYY
 
 Có gì ghi sau chứ lười quá
 
